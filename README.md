@@ -14,7 +14,7 @@ If you need help with:
 - Feature suggestions or feedback  
 
 please contact us at:  
-📧 **[undercoverspygame@gmail.com]**
+📧 **undercoverspygame@gmail.com**
 
 We typically respond within **1–3 business days**.
 
